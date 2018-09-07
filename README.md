@@ -19,3 +19,10 @@ You can also download these apps and start using them on a regular basis:
 
 1. enguru - Spoken English App :  [https://play.google.com/store/apps/details?id=com.kings.retailapp ](https://play.google.com/store/apps/details?id=com.kings.retailapp)
 2. Hello English - Learn English : [https://play.google.com/store/apps/details?id=com.CultureAlley.japanese.english](https://play.google.com/store/apps/details?id=com.CultureAlley.japanese.english)
+
+## English Coaching Classes
+
+You should also consider joining English coaching classes. Apart from providing you with a much-needed environment, they can also help you with vocabulary and pronunciation. Some of the suggested English coaching classes in BTM Layout are :-
+
+1. Veta: One of the largest English training academies with centers all over India. Cost of training starts from Rs 3000 based on the fluency of candidate.  [http://www.veta.in/ ](http://www.veta.in/)
+2. Good to Excellence :  They offer specialized training courses, from Basic level to Advanced. Cost of training starts from Rs 3200. [http://goodtoexcellence.com/](http://goodtoexcellence.com/)
