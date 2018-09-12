@@ -2,16 +2,22 @@
 
 This track is designed for MountBlue trainees to increase English language skills.
 
-## Courses
+## Spoken English Courses
 
 Please go through these courses and master the basics.
 
 1. Improving Social Language Skills: [https://alison.com/course/Improving-Your-Social-English-Language-Skills](https://alison.com/course/Improving-Your-Social-English-Language-Skills)
 2. Introduction to Phonetics: [https://www.youtube.com/watch?v=7mahmMmnSx4&list=PLOZUTLsJbEAjW-Z9Bou0fPvPs8zdF79pJ](https://www.youtube.com/watch?v=7mahmMmnSx4&list=PLOZUTLsJbEAjW-Z9Bou0fPvPs8zdF79pJ)
 
-## Writing Practice
+## English Writing Courses
 
-1. Read 1 newspaper article everyday and write a summary in 100 words. Get it reviewed by someone and improve your written skills.
+1. English Writing Essentials: Perfect Your Written English (Paid Course)
+[https://www.udemy.com/eslwritingessentials](https://www.udemy.com/eslwritingessentials)
+You can buy this course to understand basic grammar rules and common mistakes to avoid while writing.
+
+2. Writing Effective Emails
+[https://www.youtube.com/watch?v=spf7QfJqQTU](https://www.youtube.com/watch?v=spf7QfJqQTU)
+Emails are an important part of your professional life so, it is essential that you learn to write them correctly.
 
 ## Apps
 
