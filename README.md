@@ -19,6 +19,9 @@ You can buy this course to understand basic grammar rules and common mistakes to
 [https://www.youtube.com/watch?v=spf7QfJqQTU](https://www.youtube.com/watch?v=spf7QfJqQTU)
 Emails are an important part of your professional life so, it is essential that you learn to write them correctly.
 
+3. Grammar course - Khan Academy
+[https://www.khanacademy.org/humanities/grammar](https://www.khanacademy.org/humanities/grammar)
+
 ## Apps
 
 You can also download these apps and start using them on a regular basis:
