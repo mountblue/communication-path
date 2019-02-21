@@ -22,6 +22,11 @@ Emails are an important part of your professional life so, it is essential that 
 3. Grammar course - Khan Academy
 [https://www.khanacademy.org/humanities/grammar](https://www.khanacademy.org/humanities/grammar)
 
+4. Tools that you can use to improve your writing -
+
+* [Grammarly](https://www.grammarly.com/) to avoid grammatical mistakes.
+* [Hemingway Editor](http://www.hemingwayapp.com/) to write in an active and clear voice.
+
 ## Apps
 
 You can also download these apps and start using them on a regular basis:
